@@ -1,3 +1,3 @@
 # Master_harjutamine
 See on harjutamiseks
-ma ei tea kas see on õige asi
+ma ei tea kas see on õige asi???
